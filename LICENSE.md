@@ -1,4 +1,4 @@
-# 
+# Experience oil empire like never before with oil empire Script custom, the #1 Script. Includes one-hit kill and esp for unbeatable performance.
 
 
 
